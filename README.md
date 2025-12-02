@@ -1,0 +1,79 @@
+# David Archuleta – Crush (Official Video)
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+I hung up the phone tonight
+Something happened for
+the first time
+Deep inside
+It was a rush what a rush
+Cause the possibility
+that you would ever feel
+the same way about me
+It's just too much
+just too much
+Why do I keep running
+from the truth
+All I ever think about is you
+You got me hypnotized
+so mesmerized
+And I just got to know
+Do you ever think
+when your all alone
+All that we can be
+where this thing can go
+Am I crazy or falling in love
+Is it real or just another crush
+Do you catch a breath
+when I look at you
+Are you holding back
+like the way I do
+Cuz I try and try to walk away
+But I know this crush ain't
+going away going away
+Has it ever cross your mind
+When we're hanging
+spending time girl
+Are we just friends
+Is there more is there more
+See it's a chance
+we've gotta take
+Cause I believe
+that we can make this into
+something that will last
+Last forever forever
+Do you ever think
+when your all alone
+All that we can be
+where this thing can go
+Am I crazy or falling in love
+Is it real or just another crush
+Do you catch a breath
+when I look at you
+Are you holding back
+like the way I do
+Cuz I try and try to walk away
+But I know this crush ain't
+going away going away
+Why do I keep running
+from the truth
+All I ever think about is you
+You got me hypnotized
+so mesmerized
+And I just got to know
+Do you ever think
+when your all alone
+All that we can be
+where this thing can go
+Am I crazy or falling in love
+Is it real or just another crush
+Do you catch a breath
+when I look at you
+Are you holding back
+like the way I do
+Cuz I try and try to walk away
+But I know this crush ain't
+going away going away
+going away going away going away
+```
